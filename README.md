@@ -1,2 +1,2 @@
-# mustafiyah.github.io
+# amuzt.github.io
 My Digital resume
